@@ -1,1 +1,0 @@
-David Aspin, Iowa Hawkeyes
